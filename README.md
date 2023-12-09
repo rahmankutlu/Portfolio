@@ -28,4 +28,4 @@ Contact
 You can reach out to me using the following methods:
 
 Email: rahmankutlu07@gmail.com
-LinkedIn: Abdurrahman KUTLU
+LinkedIn: [Abdurrahman KUTLU](https://www.linkedin.com/in/abdurrahmankutlu/)
